@@ -5,7 +5,7 @@ In Week 5 Lecture, we studied the writing types of propositional essays. Please 
 
 ## Part 1 
 
-Write a 150-180 words essay with the title ‘The impact of technology on education’ in 30 minutes. Fluent language and clear logic are required.
+Write a 120-150 words essay with the title ‘The impact of technology on education’ in 30 minutes. Fluent language and clear logic are required.
 ### Plan Should Include：
 
 1. Topic
